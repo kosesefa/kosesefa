@@ -1,3 +1,3 @@
                                                            MERHABA !
-                                     Sefa Köse |  Junior Back-end Developer | Ankara , TR
+                                     Sefa Köse |  Junior Unity Developer | Ankara , TR
                                            
